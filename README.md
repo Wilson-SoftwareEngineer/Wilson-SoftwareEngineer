@@ -27,9 +27,9 @@ I'm always working on something exciting, from web apps to automation scripts. C
 
 Feel free to connect with me:
 
-- LinkedIn: [Your LinkedIn Profile](#)
-- Twitter: [@YourTwitterHandle](#)
-- Email: [youremail@example.com](#)
+- LinkedIn: [soon...](#)
+- Twitter: [soon.](#)
+- Email: [soon.](#)
 
 ---
 
