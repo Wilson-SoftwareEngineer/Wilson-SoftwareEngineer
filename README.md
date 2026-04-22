@@ -60,7 +60,7 @@ I'm always working on something exciting, from web apps to automation scripts. C
 
 Feel free to connect with me:
 
-- LinkedIn: [soon](#)
+- LinkedIn: [www.linkedin.com/in/wilson-sousa-826b8b245](#)
 - Twitter: [soon](#)
 - Email: [soon](#)
 
